@@ -1,0 +1,1 @@
+This is added and here is a statement: "I have no idea how to add a photo here".
